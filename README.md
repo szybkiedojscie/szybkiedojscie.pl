@@ -1,0 +1,2 @@
+# szybkiedojscie.pl
+szybko dojdziesz 
